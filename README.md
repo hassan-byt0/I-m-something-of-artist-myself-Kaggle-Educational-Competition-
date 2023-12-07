@@ -1,0 +1,1 @@
+# I-m-something-of-artist-myself-Kaggle-Educational-Competition-
